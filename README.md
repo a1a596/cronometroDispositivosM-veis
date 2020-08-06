@@ -1,0 +1,1 @@
+# cronometroDispositivosM-veis
